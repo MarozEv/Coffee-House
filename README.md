@@ -1,1 +1,1 @@
-https://marozev.github.io/MySelfStudy/
+https://marozev.github.io/Coffee-House/
